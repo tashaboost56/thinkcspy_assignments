@@ -1,3 +1,4 @@
+Latasha Battle
 # Weekly Graded Assignment Instructions
 
 This is a tricky one!
